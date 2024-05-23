@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DIWAKARNANI
+- 👋 Hi, I’m @G.Venkata DIWAKAR
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning btech
 - 💞️ I’m looking to collaborate on mail
